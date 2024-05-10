@@ -1,4 +1,4 @@
-### Hi there, walcome 🖤
+### Hi there, welcome 🖤
 
 My name is Emanoel
 
